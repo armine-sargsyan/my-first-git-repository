@@ -1,1 +1,1 @@
-good luck
+have a good time
